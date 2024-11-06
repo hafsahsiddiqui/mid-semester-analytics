@@ -23,6 +23,8 @@
 1. It was a UFA GM + we both advertised to members (total turnout of 100+)
 2. CYC didn’t advertise, so everyone that came was WBA
 
+<kbd><img width="853" alt="Screenshot 2024-11-06 at 5 12 38 PM" src="https://github.com/user-attachments/assets/7649e6e5-4a1c-43ce-853e-b0a175de04d0">
+
 ## Philantrophy 
 1. Really good attendance record so far! Members seem to like the more crafty events such as origami, blanket making, and coloring pages!
 2. Just a guess, but maybe “cranes” sounded intimidating last year
