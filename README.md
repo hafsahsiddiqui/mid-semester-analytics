@@ -7,7 +7,6 @@
 4. This semester we have 177 year & 110 semester members
 5. 76% members are part of McCombs, 12% want to be eventually, 19% not McCombs related majors
 
-
 ## Classification
 1. A lot of juniors dropped- looking back, a lot weren’t even coming to events or active in the org
 2. 40 new freshmen joined
@@ -31,4 +30,4 @@
 ## General Meetings Attendance
 1. Plan Ahead. Don't do general meetings on big days such as Valentine's Day
 
-
+<kbd><img width="856" alt="Screenshot 2024-11-06 at 5 04 37 PM" src="https://github.com/user-attachments/assets/02200e91-f79a-41ca-84c4-80147c50bcbf">
